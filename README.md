@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Krishna Dhawangale
-**I am passionate Data Science || Data Analytics || Full Stack Development**
+**I am passionate Data Science || Data Analytics || AI Engineer**
 
 Email Me 👉 ✉️ **krishnadhawangale066@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
